@@ -1,1 +1,0 @@
-# nykkpvt.github.io
